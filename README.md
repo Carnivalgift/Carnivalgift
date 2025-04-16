@@ -1,4 +1,4 @@
-alt, spam follow  ✦ main acc : @oceanblessing , artists infp
+alt, spam follow  ✦ follow main acc : @oceanblessing. idm if you block me
 
 <!--
 **Carnivalgift/Carnivalgift** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
